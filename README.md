@@ -1,3 +1,4 @@
-# invistatop-project-nexus
+# InvistaTop_Agix_V10
 
-em 26.07.255 acho que é Hatchcanvas
+em 26.07.25 por Lovable
+
